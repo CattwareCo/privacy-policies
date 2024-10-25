@@ -27,4 +27,4 @@ This Privacy Policy may be updated periodically. We encourage you to review it f
 If you have any questions about this Privacy Policy, please contact us at:
 
 Cattware Co. Inc.
-Email: [Insert Contact Email]
+Email: support@cattware.com
